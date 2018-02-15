@@ -7,3 +7,12 @@ Just to familarise with github and using the funactionality of the all the basis
 hi this is surya, I am going to od the first commit 
 
 nljfhlshfousgouhdghndtj
+
+
+
+this is the second commit
+*************************************************************************************************
+****************************************************************************************************
+**************************************************************************************************
+ipj
+
